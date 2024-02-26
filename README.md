@@ -1,0 +1,1 @@
+# to-plamlarni-qo-shish
